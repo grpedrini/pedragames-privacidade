@@ -1,0 +1,1 @@
+# pedragames-privacidade
